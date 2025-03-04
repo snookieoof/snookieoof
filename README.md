@@ -1,1 +1,3 @@
-im a sigma 
+i like computers n stuff.
+i know nothin bout networking
+
